@@ -7,3 +7,4 @@
 
 ## [[ Developed By Claudioox ]] ##
 
+https://i.imgur.com/yYS2e6I.png
